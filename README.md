@@ -1,4 +1,7 @@
 # mercy-ocean
 My first repository
-Hi Shifa here
-I am playing around coding :)
+Hi there
+Welcome to my world. This is mercy ocean. be kind yourself and be kind with others. 
+Generosity is a way of life not an option.
+
+
